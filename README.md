@@ -7,3 +7,11 @@
 ![AudioWaveAnimationsDocPDF 004](https://github.com/user-attachments/assets/125ba665-8448-4f20-825c-da68b8a58858)
 
 ![AudioWaveAnimationsDocPDF 016](https://github.com/user-attachments/assets/7b9f8997-d252-42fa-bee8-f2b25b0c16ec)
+
+# Below URL for finding full details - (Text or Video form)
+
+# Youtube url: https://www.youtube.com/watch?v=qi_QyGE4YAI
+
+# Linkedin Profile: https://www.linkedin.com/in/sumit-chahar-2956a513b/
+
+# Medium link: https://medium.com/p/0aee1cccb44c
