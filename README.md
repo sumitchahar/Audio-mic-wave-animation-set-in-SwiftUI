@@ -12,6 +12,6 @@
 
 # Youtube url: https://www.youtube.com/watch?v=qi_QyGE4YAI
 
-# Linkedin Profile: https://www.linkedin.com/in/sumit-chahar-2956a513b/
+# Linkedin Profile: https://www.linkedin.com/pulse/audio-mic-wave-animation-set-swiftui-sumit-chahar-ihn4c/?trackingId=3Wl3wabJLA090ITqJ5va8g%3D%3D
 
 # Medium link: https://medium.com/p/0aee1cccb44c
